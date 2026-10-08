@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on DL
 - 📫 How to reach me? email me at borhanmukto@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am a Professional Civil Engineer.
+- ⚡ Fun fact: No fun in my life!
 
 <!---
 borhanmukto/borhanmukto is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
